@@ -114,7 +114,8 @@ Q4開始要跑一堆劇情了 第一次要打靠物品的boss
 ## References: 
 [錬金術に心惹かれて 新・ロロナのアトリエ実況プレイ](https://www.youtube.com/playlist?list=PLlGX8UJqrE05vqymFdA9yCm1B2cH3duq5)  
 [新・ロロナのアトリエ 攻略 Wiki](https://wikiwiki.jp/newrorona/)  
-[《新・蘿樂娜的鍊金工房起始的故事～亞蘭德的鍊金術士～》白金獎杯攻略 - PSV遊戲討論與攻略 - 紅心討論區 - 最新NDS | PSP | XBOX360 | PS3 | Wii遊戲最速攻略](http://www.isheart.com/viewthread.php?tid=146551)  
+[新・ロロナのアトリエ 攻略](https://andraste.info/g/atelier_rorona/)
+[《新・蘿樂娜的鍊金工房起始的故事～亞蘭德的鍊金術士～》白金獎杯攻略](http://www.isheart.com/viewthread.php?tid=146551)  
 [無責任筆記簿–ロロナのアトリエ @ 星海的秘密小屋 :: 隨意窩 Xuite日誌](http://blog.xuite.net/ragunight/albelfunnyworld/40943299-%E7%84%A1%E8%B2%AC%E4%BB%BB%E7%AD%86%E8%A8%98%E7%B0%BF%E2%80%93%E3%83%AD%E3%83%AD%E3%83%8A%E3%81%AE%E3%82%A2%E3%83%88%E3%83%AA%E3%82%A8)  
 [Atelier Rorona™ The Alchemist of Arland (JP) › Trophies.de](https://www.trophies.de/trophaeen/atelier-rorona-the-alchemist-of-arland-jp-29403.html)  
 [【攻略】～ロロナのアトリエ～簡易角色劇情時程 @鍊金術士系列 哈啦板 - 巴哈姆特](https://forum.gamer.com.tw/Co.php?bsn=00838&sn=7550)  
