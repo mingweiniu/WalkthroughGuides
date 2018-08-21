@@ -116,7 +116,7 @@ Lv70フラム可以炸開路口達成全探索
 
 ## 白金
 
-  * お金持ちエンド／金／お金持ちエンディングの一枚絵を見る。 
+  * お金持ちエンド／金／お金持ちエンディングの一枚絵を見る。   
  存到100萬以上的金錢 可以用金派去解任務
 
 
@@ -124,7 +124,7 @@ Lv70フラム可以炸開路口達成全探索
 ## References: 
 [錬金術に心惹かれて 新・ロロナのアトリエ実況プレイ](https://www.youtube.com/playlist?list=PLlGX8UJqrE05vqymFdA9yCm1B2cH3duq5)  
 [新・ロロナのアトリエ 攻略 Wiki](https://wikiwiki.jp/newrorona/)  
-[新・ロロナのアトリエ 攻略](https://andraste.info/g/atelier_rorona/)
+[新・ロロナのアトリエ 攻略](https://andraste.info/g/atelier_rorona/)  
 [無責任筆記簿–ロロナのアトリエ @ 星海的秘密小屋 :: 隨意窩 Xuite日誌](http://blog.xuite.net/ragunight/albelfunnyworld/40943299-%E7%84%A1%E8%B2%AC%E4%BB%BB%E7%AD%86%E8%A8%98%E7%B0%BF%E2%80%93%E3%83%AD%E3%83%AD%E3%83%8A%E3%81%AE%E3%82%A2%E3%83%88%E3%83%AA%E3%82%A8)  
 [Atelier Rorona™ The Alchemist of Arland (JP) › Trophies.de](https://www.trophies.de/trophaeen/atelier-rorona-the-alchemist-of-arland-jp-29403.html)  
 [《新・蘿樂娜的鍊金工房起始的故事～亞蘭德的鍊金術士～》白金獎杯攻略](http://www.isheart.com/viewthread.php?tid=146551)  
